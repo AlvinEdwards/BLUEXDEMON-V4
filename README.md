@@ -87,8 +87,8 @@ npm start
 ***
 ### DEVELOPER:
 **GET In Touch with The Owner**
-- [**On WHATSAPP**](https://wa.me/2347041039367)
-- [**CHANNEL**](https://whatsapp.com/channel/0029Vah3fKtCnA7oMPTPJm1h) 
+- [**On WHATSAPP**](https://wa.me/256740761661)
+- [**CHANNEL**](https://wa.me/256740761661) 
 ***
 ### WARNING
 
